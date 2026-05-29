@@ -35,19 +35,19 @@ If red flags are present, the answer must prioritize stabilization, consent, bou
 
 ## Step 3: Extract the Core Question
 
-Reduce the submission into one clean central question.
+Reduce the submission into one clean central question.   
 
-Format:
+Format:   
 
-“How do I understand or navigate [specific issue] when [specific emotional or relational conflict]?”
+“How do I understand or navigate [specific issue] when [specific emotional or relational conflict]?”   
 
-Examples:
+Examples:   
 
-“How do I talk to my wife about cuckolding without making her feel pressured?”
+“How do I talk to my wife about cuckolding without making her feel pressured?”   
 
-“How do I handle jealousy when my wife enjoys attention from other men?”
+“How do I handle jealousy when my wife enjoys attention from other men?”   
 
-“How do we repair trust after a boundary was crossed in our hotwife dynamic?”
+“How do we repair trust after a boundary was crossed in our hotwife dynamic?”   
 
 ## Step 4: Reframe the Published Question
 
@@ -77,10 +77,10 @@ Use this format:
 
 **Dear Dr. Sitara,**
 
-Paragraph 1: Relationship context
-Paragraph 2: What happened or what the reader is struggling with
-Paragraph 3: Emotional conflict, fear, desire, or uncertainty
-Paragraph 4: The direct question
+Paragraph 1: Relationship context   
+Paragraph 2: What happened or what the reader is struggling with   
+Paragraph 3: Emotional conflict, fear, desire, or uncertainty   
+Paragraph 4: The direct question   
 
 Keep the published question clear, human, and emotionally specific.
 
@@ -88,13 +88,13 @@ Keep the published question clear, human, and emotionally specific.
 
 When Dr. Sitara provides raw notes, expand them into a polished response using this structure:
 
-1. Validate the emotional reality
-2. Name the deeper relational pattern
-3. Clarify consent, boundaries, and pacing
-4. Explain the psychological or relational frame
-5. Offer practical next steps
-6. Include a short micro-script when relevant
-7. Close with autonomy, safety, and reflection
+1. Validate the emotional reality   
+2. Name the deeper relational pattern   
+3. Clarify consent, boundaries, and pacing   
+4. Explain the psychological or relational frame   
+5. Offer practical next steps   
+6. Include a short micro-script when relevant   
+7. Close with autonomy, safety, and reflection   
 
 ## Step 7: Answer Style
 
